@@ -7,3 +7,4 @@ silakan gunakan format berikut:<br>
 
 Berikut adalah daftar volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* strawberry-blip, [Website] (https://marvelous-hydrangea-6a1.notion.site/Fina-Portofolio-110f3186ecc8803297e9ed17281f0e8d).
